@@ -25,9 +25,7 @@ I'm shocked that this question comes up so often...but here's some ideas. Please
 
 [Post 2](https://www.facebook.com/groups/TheLoopedGroup/permalink/2470906669792651/)
 
-[Post 3](https://www.facebook.com/groups/TheLoopedGroup/permalink/2469724099910908/)
-
-[Post 4](https://www.facebook.com/groups/TheLoopedGroup/permalink/2324172164466103/)
+[Post 3](https://www.facebook.com/groups/TheLoopedGroup/permalink/2324172164466103/)
 
 ## How far away can the RileyLink be?
 
